@@ -1,1 +1,1 @@
-# Paladins
+# DC Gaming
